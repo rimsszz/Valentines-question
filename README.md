@@ -1,2 +1,2 @@
 # Valentines-question
-Can you be my valentine? 🩷
+Can you be my valentine?
